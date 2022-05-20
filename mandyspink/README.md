@@ -1,0 +1,1 @@
+Mandyspink Wallpapers is part of Syenasweta open source project by Nashrullah Ali Fauzi.
